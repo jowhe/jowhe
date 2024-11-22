@@ -1,5 +1,7 @@
 ## Hi there 👋
 
+- 🌱 I’m currently study level 6 (Top-up) Computing
+
 <!--
 **jowhe/jowhe** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
