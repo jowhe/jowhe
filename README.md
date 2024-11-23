@@ -7,5 +7,5 @@ Hi there, I am currently stuck in the matrix, looking at numbers and vectors. Pl
 - 👯 I’m looking to collaborate on anything!
 - 📫 How to reach me: check for my email somewhere!
 - 😄 Pronouns: He/Him
-- ⚡ Fun fact: Japan has 1 vending machine for every 40 people!
+- ⚡ Fun fact: Japan has 1 vending machine for every 23 people!
 
